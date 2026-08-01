@@ -1,1 +1,2 @@
-# Just-a-letter-
+# Haiii
+“Welcome home sayang… sowryyy tadi mau nulis surat tidak sempattt hehe. Kalo kamu nanya kenapa ada bunga? Jawaban nya ya gapapa aku pengen aja. Walaupun ngasih bunga identik ke cowo yg ngasih ke cewe, tapi menurut ku engga sih, cowo juga boleh dikasih. Bunga itu bisa menyimbolkan rasa sayang, cinta, perhatian, dll nya.. so, kamu juga boleh dapet itu kan dari aku wkwkwk. Yaudah gitu aja, loveyouu❤️”
